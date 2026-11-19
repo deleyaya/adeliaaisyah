@@ -1,0 +1,2 @@
+# adeliaaisyah
+hidup banyak uang
